@@ -1,13 +1,17 @@
 bordel
 buzna
+buzik
+čupka
 čumět
 čurák
+cecky
 debil
 dement
 do piče
 do prdele
 dršťka
 držka
+dildo
 flundra
 hajzl
 hovno
@@ -19,6 +23,7 @@ kokotina
 koňomrd
 kunda
 kurva
+koule
 mamrd
 mrdat
 mrdka
@@ -40,3 +45,4 @@ zkurvit
 zkurvysyn
 zmrd
 žrát
+frnda
