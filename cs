@@ -46,3 +46,24 @@ zkurvysyn
 zmrd
 žrát
 frnda
+černá huba
+vyjebat
+jebat
+zajebat
+posrat
+zesrat
+zasrat
+nasrat
+nigga
+prstit 
+honit
+šukat
+prcat
+mrdat
+štětka 
+jeblina
+percinka
+posraná
+hovno
+sračka
+brko
