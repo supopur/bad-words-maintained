@@ -3,6 +3,7 @@ buzna
 čumět
 čurák
 debil
+dement
 do piče
 do prdele
 dršťka
